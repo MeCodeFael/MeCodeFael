@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MeCodeFael
 - 👀 I’m interested in everything.
-- 🌱 I’m currently learning how to socialize.
-- 💞️ I’m looking for sugardadeh
+- 🌱 I’m currently learning how to suicide.
+- 💞️ I’m looking for sugardadeh.
 - 📫 How to reach me ... Email me at DontDisturbMeImBusy@gmail.com
 
 <!---
